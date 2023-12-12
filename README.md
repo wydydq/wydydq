@@ -1,5 +1,8 @@
 ### Hi there 👋
-
+- 🔭 默默无闻攻城狮一枚
+- 🌱 热爱运动，坚持跑步，正在集马拉松奖牌🏅
+- 👯 有早起的好习惯
+- 😄 微信：wydydq
 <!--
 **wydydq/wydydq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
